@@ -1,2 +1,2 @@
 # LowlyPalace
-Taking the Trap game by storm. 
+Do it, you won't. 
